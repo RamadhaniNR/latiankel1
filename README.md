@@ -1,2 +1,4 @@
 # latiankel1
-kelompok ramadhani dan nabil
+Nama : nabil fauzi ramadhan
+kelas : XI RPL C
+no : 09
